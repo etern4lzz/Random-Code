@@ -1,2 +1,2 @@
 # Random-Code
-random
+Isinya random file hasil belajar hehe
